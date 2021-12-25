@@ -49,6 +49,7 @@ A list of cool kurds working in the IT industry to follow and meet! The list is 
 - [Ayman Sabri](https://twitter.com/krdayman)
 - [Muhammed Naqshabandi](https://twitter.com/zertux6)
 - [Xaliss Pasha](https://twitter.com/XalissPasha)
+- [Sharo Karwan](https://twitter.com/Sharo951)
 
 ## Network
 
